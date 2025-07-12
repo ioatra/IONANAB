@@ -6,6 +6,8 @@ Note that some badges will require 2 spaces. I will also update this as I make m
 
 If you'd like to support me, then just interact with my content on social medias. I also take suggestions! Enjoy ♥
 
+[FAQ](https://fift33nfathoms.tumblr.com/post/788841017264701440/faq)
+
 ### **Current Badges (v.1.0.0) **
 ![HNI_0007](https://github.com/user-attachments/assets/4b571e2d-7e16-4222-af73-d3e5263c0a14)
 
