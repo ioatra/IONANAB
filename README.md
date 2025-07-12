@@ -1,8 +1,10 @@
-Here's some badges I made! This also includes different position and color variations, based on preference!
+Here's some badges I made! This also includes different position and color variations, based on preference!\
+
+If there's any questions, [please send an ask to my tumblr!](https://www.tumblr.com/new/ask/fift33nfathoms)
 
 Note that some badges will require 2 spaces. I will also update this as I make more badges. (which I plan to do!)
 
-If there's any questions, [please send an ask to my tumblr!](https://www.tumblr.com/new/ask/fift33nfathoms)
+If you'd like to support me, then just interact with my content on social medias. I also take suggestions! Enjoy ♥
 
 ### **Current Badges (v.1.0.0) **
 ![HNI_0007](https://github.com/user-attachments/assets/4b571e2d-7e16-4222-af73-d3e5263c0a14)
