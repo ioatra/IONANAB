@@ -1,5 +1,5 @@
 Here's some badges I made! This also includes different position and color variations, based on preference!
-Some badges will require 2 spaces, so 
+Note that some badges will require 2 spaces. 
 If there's any questions, [please send an ask to my tumblr!](https://www.tumblr.com/new/ask/fift33nfathoms)
 
 ### **Current Badges (v.1.0.0) **
